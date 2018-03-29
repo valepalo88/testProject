@@ -1,1 +1,1 @@
-tanto va la gatta al lardo
+tanto va il robot al lardo
